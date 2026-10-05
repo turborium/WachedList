@@ -7,4 +7,4 @@
 - [Devilman: Crybaby](https://shikimori.io/animes/35120-devilman-crybaby) - Посмотрели полностью, 6.5/10 из-за концовки, смотреть можно, в один проход норм заходит, нет филлеров и т.д.
 
 ## Игры
-- [Yuppie Psycho](https://store.steampowered.com/app/597760/Yuppie_Psycho_Executive_Edition/) - Прошел. Чуть не дропнул на духоте, из DLC, в уровне с камерами, в который попал по незнанию. Проходите без DLC - оно душное. Без DLC - 6/10, c DLC - 4/10 из-за духоты.
+- [Yuppie Psycho](https://store.steampowered.com/app/597760/Yuppie_Psycho_Executive_Edition/) - Прошел. Чуть не дропнул на духоте, из DLC, на уровне с камерами, в который попал по незнанию. Проходите без DLC - оно душное. Без DLC - 6/10, c DLC - 4/10 из-за духоты.
